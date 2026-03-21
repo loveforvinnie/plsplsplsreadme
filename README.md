@@ -2,11 +2,13 @@
 
 <div align="center">
     ・———— ・ ✦୨୧✦ ・———— ・ 
+    <div align="center">
 vivi        16          c+h
 
 <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/dedbc829-d5be-4f7d-a67d-c7fcc2504796" />
 <div align="center">
   ・———— ・ ✦୨୧✦ ・———— ・ 
+    <div align="center">
 [**__strawpage__**](https://mrskent.straw.page/)  [**__pronouns page__**](https://pronouns.cc/@loveforvinnie)    [**__strawpage__**](https://loveforvinnie.straw.page/)
   
 <div align="center">
