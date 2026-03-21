@@ -9,7 +9,7 @@ vivi        16          c+h
 <div align="center">
   ・———— ・ ✦୨୧✦ ・———— ・ 
     <div align="center">
-[**__strawpage__**](https://mrskent.straw.page/)  [**__pronouns page__**](https://pronouns.cc/@loveforvinnie)    [**__strawpage__**](https://loveforvinnie.straw.page/)
+[strawpage](https://mrskent.straw.page/)  [**__pronouns page__**](https://pronouns.cc/@loveforvinnie)    [**__strawpage__**](https://loveforvinnie.straw.page/)
   
 <div align="center">
 pls interact if youre kon-el!! especially interact if you like any of my fandoms but cuddle and hide (c+h) freely. most of the time i prefer sitting on my own tho, so if i tell you to give me space, give me space. i get overwhelmed easily so i do block and hide as i please. i do unblock and unhide after a while unless youre really bad.
