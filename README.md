@@ -1,5 +1,3 @@
-# read byi
-
 <div align="center">
     ・———— ・ ✦୨୧✦ ・———— ・ 
     <div align="center">
